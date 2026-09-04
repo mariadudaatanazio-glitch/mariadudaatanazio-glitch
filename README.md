@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+<img src="ChatGPT Image 4 de set. de 2026, 19_19_57.png" width="100%">
 <!--
 **mariadudaatanazio-glitch/mariadudaatanazio-glitch** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
